@@ -1,0 +1,2 @@
+First lay one slice of bread on the plate then take the knife and dip it into the peanut butter and take some peanut butter,then evenly spread the peanut butter across the bread.Then take the knife and dip it in the jelly and get some jelly and then evenly spread the jelly over the peanut butter on the bread.
+Then you should take the other slice of bread and keep it on top of the jelly and peanut butter an dthere you ahve a PBJ sandwich.
